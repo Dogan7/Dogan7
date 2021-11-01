@@ -1,2 +1,1 @@
-Ben Dogan
-Ülkücü değilim
+
